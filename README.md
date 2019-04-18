@@ -1,40 +1,18 @@
-TelegramView-hack4lx
-
-
-TelegramView-hack4lx
-
-
-**********************************************************
-
-[![Telegram Chat](https://img.shields.io/badge/chat%20on-Telegram-blue.svg)](https://t.me/hack4lx)
-
-__Hello Guy's i'am hack4lx Nice To See U again !._.!
-
-✯ Follow Me ♥
-
-✂●●●●●●●●●●●●●●●●●●●●●●●●●●●●
-
-⋖❂ 💻 （︶︿︶）Hacking security team（︶︿︶）❂⋗
-
-⋖⋖⋖ 💢™M4nifest0 Cyber security team™💢 ⋗⋗⋗
-
-⚠️ Read-First:
-
-•The author of the does not encourage anyone to repeat this. Otherwise, you will be solely responsible. The was created for informational purposes. And for the fact that you caution you!
-
-✂●●●●●●●●●●●●●●●●●●●●●●●●●●●●
-
-✯Just Leave Like & Subs You Can Share iT With Y're lovely Friends
-
-✯ Thank's For/4 Watching ^^
-
-Cσρчяιgнτ ©2018 ✪ @hack4lx ✪
-
-💻 （︶︿︶）Hacking security team（︶︿︶）
-
-💢™M4nifest0 Cyber security team™💢
-
-🆔 @hack4lx
-
-😎 Telegram : 🆔 @os20ir
-
+# TelegramView-Bypass
+Fake View Telegram post with Proxy list
+👊 ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ™💪
+🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
+➖➖➖➖➖➖
+☠️ 𝕸𝖆𝖓𝖆𝖌𝖊𝖗 𝖔𝖋 𝖙𝖍𝖊 𝖘𝖊𝖈𝖚𝖗𝖎𝖙𝖞 𝖙𝖊𝖆𝖒 ☠️
+➖➖➖➖➖➖
+ 🆔@hack4lx
+➖➖➖➖➖➖ 
+🌐 site: R4zx.com 
+➖➖➖➖➖➖
+🌐 site: combo.r4zx.com
+➖➖➖➖➖➖
+🌐 Instagram: _hack4lx_
+➖➖➖➖➖➖
+💢 https://linktr.ee/_hack4lx_ 💢
+➖➖➖➖➖➖
+https://t.me/os20ir
