@@ -1,5 +1,5 @@
 import re, sys, threading, time
-# 👊 ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ™💪
+# ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ
 try:
     import requests
 except ImportError:
