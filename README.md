@@ -4,7 +4,9 @@ TelegramView-hack4lx
 TelegramView-hack4lx
 
 
+**********************************************************
 
+[![Telegram Chat](https://img.shields.io/badge/chat%20on-Telegram-blue.svg)](https://t.me/hack4lx)
 
 __Hello Guy's i'am hack4lx Nice To See U again !._.!
 
