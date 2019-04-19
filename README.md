@@ -5,8 +5,8 @@ Fake View Telegram post with Proxy list
 
 https://www.youtube.com/watch?v=SUcwaGliz70&feature=youtu.be
 
+**************************
 
-********************************
 👊 ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ™💪
 
 🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
@@ -17,15 +17,7 @@ https://www.youtube.com/watch?v=SUcwaGliz70&feature=youtu.be
 
 ➖➖➖➖➖➖
 
- 🆔@hack4lx
- 
-➖➖➖➖➖➖ 
-
-🌐 site: R4zx.com 
-
-➖➖➖➖➖➖
-
-🌐 site: combo.r4zx.com
+🆔@hack4lx
 
 ➖➖➖➖➖➖
 
