@@ -3,9 +3,9 @@ import re, sys, threading, time
 try:
     import requests
 except ImportError:
-    print '---------------------------------------------------'
-    print '[*] pip install requests'
-    print '   [-] you need to install requests Module'
+    print ('---------------------------------------------------')
+    print ('[*] pip install requests')
+    print ('   [-] you need to install requests Module'
     sys.exit()
 
 try:
